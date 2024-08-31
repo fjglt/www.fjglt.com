@@ -40,7 +40,7 @@
 
 👉[福建联通活动链接](https://www.yuque.com/fjglt/fjglt/fwocc7mubg6o46z9)👈  https://www.yuque.com/fjglt/fjglt/fwocc7mubg6o46z9  
 
-👉[福建广电活动链接](https://f0q.cn/22eqE6)👈  https://f0q.cn/22eqE6  
+👉[福建广电活动链接](https://f0q.cn/22eqE6)👈  待更换  
 
 >   福建活动群
 
@@ -56,11 +56,11 @@
 
 >   外省活动
 
-👉[北京移动活动链接](https://f0q.cn/1yhl8w)👈  https://f0q.cn/1yhl8w  
+👉[北京移动活动链接](https://f0q.cn/1yhl8w)👈  待更换 
 
-👉[广东移动活动链接](https://f0q.cn/1UM1KX)👈  https://f0q.cn/1UM1KX  
+👉[广东移动活动链接](https://f0q.cn/1UM1KX)👈  待更换 
 
-👉[宁夏电信活动链接](https://f0q.cn/1jeXQy)👈  https://f0q.cn/1jeXQy  
+👉[宁夏电信活动链接](https://f0q.cn/1jeXQy)👈  待更换  
 
 # 流量消耗（快速消耗流量）
 👉[流量消耗器/新版](https://www.fjglt.com/llxhq)👈  https://www.fjglt.com/llxhq
