@@ -3,9 +3,10 @@
 
 👉[橄榄头官网备用地址](https://www.fjglt.cn/)👈  https://www.fjglt.cn/  
 # 全国流量卡套餐购买
-👉[大流量卡购买0](https://h5.gantanhao.com?from=fjglt)👈 流量优惠卡套餐购 https://h5.gantanhao.com?from=fjglt  
 
-👉[大流量卡购买1](http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227)👈 流量优惠卡套餐购 http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227  
+👉[大流量卡购买0](http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227)👈 流量优惠卡套餐购 http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227  
+
+👉[大流量卡购买1](https://h5.gantanhao.com?from=fjglt)👈 流量优惠卡套餐购 https://h5.gantanhao.com?from=fjglt  
 
 👉[大流量卡购买2](https://card.wi-fi.cn/dist/index.html?source1=%E5%8F%B7%E5%8D%A1%E5%B9%BF%E5%9C%BA&sourcetype=zhushou&channel=zhushou&showBanner=false&seller_id=4141#/allpromotion)👈  
 
@@ -33,11 +34,11 @@
 # 运营商活动
 >   福建活动
   
-👉[福建移动活动链接](https://f0q.cn/1pollw)👈  https://f0q.cn/1pollw  
+👉[福建移动活动链接](https://www.yuque.com/fjglt/fjglt/xr9guysi6ugu26zq)👈  https://www.yuque.com/fjglt/fjglt/xr9guysi6ugu26zq  
 
-👉[福建电信活动链接](https://f0q.cn/1rkqsX)👈  https://f0q.cn/1rkqsX  
+👉[福建电信活动链接](https://www.yuque.com/fjglt/fjglt/iqghsc8xab32hn4m)👈  https://www.yuque.com/fjglt/fjglt/iqghsc8xab32hn4m  
 
-👉[福建联通活动链接](https://f0q.cn/29Ha7n)👈  https://f0q.cn/29Ha7n  
+👉[福建联通活动链接](https://www.yuque.com/fjglt/fjglt/fwocc7mubg6o46z9)👈  https://www.yuque.com/fjglt/fjglt/fwocc7mubg6o46z9  
 
 👉[福建广电活动链接](https://f0q.cn/22eqE6)👈  https://f0q.cn/22eqE6  
 
