@@ -6,7 +6,7 @@
 
 👉[大流量卡购买0](http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227)👈 流量优惠卡套餐购 http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227  
 
-👉[大流量卡购买1](https://h5.gantanhao.com?from=fjglt)👈 流量优惠卡套餐购 https://h5.gantanhao.com?from=fjglt  
+👉[大流量卡购买1](https://h5.gantanhao.com?from=BDF)👈 流量优惠卡套餐购 https://h5.gantanhao.com?from=BDF  
 
 👉[大流量卡购买2](https://card.wi-fi.cn/dist/index.html?source1=%E5%8F%B7%E5%8D%A1%E5%B9%BF%E5%9C%BA&sourcetype=zhushou&channel=zhushou&showBanner=false&seller_id=4141#/allpromotion)👈  
 
@@ -40,7 +40,7 @@
 
 👉[福建联通活动链接](https://www.yuque.com/fjglt/fjglt/fwocc7mubg6o46z9)👈  https://www.yuque.com/fjglt/fjglt/fwocc7mubg6o46z9  
 
-👉[福建广电活动链接](https://f0q.cn/22eqE6)👈  待更换  
+👉[福建广电活动链接](https://www.yuque.com/fjglt/fjglt/muuqrduc52ti9l4g)👈  https://www.yuque.com/fjglt/fjglt/muuqrduc52ti9l4g  
 
 >   福建活动群
 
@@ -56,11 +56,11 @@
 
 >   外省活动
 
-👉[北京移动活动链接](https://f0q.cn/1yhl8w)👈  待更换 
+👉[北京移动活动链接](https://www.yuque.com/fjglt/fjglt/zsak0fusfgx0uq08)👈  https://www.yuque.com/fjglt/fjglt/zsak0fusfgx0uq08 
 
-👉[广东移动活动链接](https://f0q.cn/1UM1KX)👈  待更换 
+👉[广东移动活动链接](https://www.yuque.com/fjglt/fjglt/xbx3cd125la3x6ng)👈  https://www.yuque.com/fjglt/fjglt/xbx3cd125la3x6ng 
 
-👉[宁夏电信活动链接](https://f0q.cn/1jeXQy)👈  待更换  
+👉[宁夏电信活动链接](https://www.yuque.com/fjglt/fjglt/eg2tggiydocvgd7t)👈  https://www.yuque.com/fjglt/fjglt/eg2tggiydocvgd7t  
 
 # 流量消耗（快速消耗流量）
 👉[流量消耗器/新版](https://www.fjglt.com/llxhq)👈  https://www.fjglt.com/llxhq
