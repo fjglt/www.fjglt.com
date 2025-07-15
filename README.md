@@ -5,7 +5,9 @@
 # 全国流量卡套餐购买
 👉[大流量卡购买1](https://h5.gantanhao.com?from=ABGF>)👈 流量优惠卡套餐购 https://h5.gantanhao.com?from=ABGF>  
 
-👉[大流量卡购买2](https://card.wi-fi.cn/dist/index.html?source1=%E5%8F%B7%E5%8D%A1%E5%B9%BF%E5%9C%BA&sourcetype=zhushou&channel=zhushou&showBanner=false&seller_id=4141#/allpromotion)👈  
+👉[大流量卡购买2](https://haoka.kaziyou.cn/shop/#/?promoCode=x72emDZC)👈 流量优惠卡套餐购 https://haoka.kaziyou.cn/shop/#/?promoCode=x72emDZC  
+
+👉[大流量卡购买3](https://card.wi-fi.cn/dist/index.html?source1=%E5%8F%B7%E5%8D%A1%E5%B9%BF%E5%9C%BA&sourcetype=zhushou&channel=zhushou&showBanner=false&seller_id=4141#/allpromotion)👈  
 
 # 优惠充值
 
